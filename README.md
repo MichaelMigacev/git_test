@@ -1,2 +1,2 @@
 Hello Michael
-Fuck You Stupid Cunt
+Fuck You, You Stupid Cunt
